@@ -1,4 +1,4 @@
-# Privacy Policy
+# JemBOT Privacy Policy
 Tanggal Efektif: [09 May 2025]
 
 Terima kasih telah menggunakan JemBOT. Kami menghargai privasi Anda dan berkomitmen untuk melindungi informasi pribadi Anda. Kebijakan privasi ini menjelaskan bagaimana kami mengumpulkan, menggunakan, dan melindungi informasi dari pengguna aplikasi chatbot kami.
